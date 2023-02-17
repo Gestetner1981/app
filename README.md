@@ -1,2 +1,0 @@
-Life is changing!
-Hello
